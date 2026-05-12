@@ -1,4 +1,4 @@
-#  
+#  custom Script for kaizen offers the most advanced kaizen Script, with undetectable and infinite resources. Perfect for dominating any match.
 
 
 
